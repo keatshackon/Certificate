@@ -1,2 +1,2 @@
 # Certificate
-All Vlauable Certificate!
+All Valuable Certificate!
